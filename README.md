@@ -1,0 +1,1 @@
+# cocina-solar-parab-lica
